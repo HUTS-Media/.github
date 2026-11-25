@@ -2,4 +2,3 @@
 
 ## About HUTS Media
 
-HMG is a fast growing independent record company with the main focus on the digital market in Dance and Pop.
